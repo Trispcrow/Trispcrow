@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Trispcrow
+- 👀 I’m interested in games, DIY electronics and design.
+- 🌱 I’m currently learning all kinds of things, but programming is one of them.
+- 💞️ I’m looking to collaborate on TAFE assignments.
+- 📫 How to reach me trizzo7@gmail.com
